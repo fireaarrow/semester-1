@@ -5,11 +5,10 @@ Sejarah itu adalah pembicaraan masa lalu itu tidak salah ada kurangnya, yaitu se
 *lampau*
 *sekarang*
 *yang akan datang*
-arti sejarah yaitu : kajian tentang peristiwa yang tumbh dan berkembang pada masa lampau masa kini untuk membentuk masa depan yang lebih baik.
+arti sejarah yaitu : kajian tentang peristiwa yang tumbuh dan berkembang pada masa lampau masa kini untuk membentuk masa depan yang lebih baik.
 
 
 ## Sejarah pancasila ##
 perkembangan sejarah  pada masa lampau masa kini dan masa lampau
-apa sih yang kita pelajari dalam topik pancasila yaitu perstiwa peristu=iwa pada masa lalu utnuk membangun masa yang akan datang, bagaimana pncasila di masa lalu di masa sekarang dan masa yang akan datang
-
+apa sih yang kita pelajari dalam topik pancasila yaitu perstiwa peristiwa pada masa lalu untuk membangun masa yang akan datang, bagaimana pncasila di masa lalu di masa sekarang dan masa yang akan datang
 
