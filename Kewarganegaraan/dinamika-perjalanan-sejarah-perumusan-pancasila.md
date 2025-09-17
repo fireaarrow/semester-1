@@ -33,7 +33,7 @@ rumusan piagam jakarta itu
 thoekrasi + yang berkuasa adalah tuhan pada awal piagam jakarta 
 
 Rengasdengklok
-Saigon membahas kemerdekaan indonesia : Rajiman, soekarno, hatta
+Tokoh yang di bawa ke Saigon membahas kemerdekaan indonesia : Rajiman, soekarno, hatta
 # Masa Pengesahan #
 Proklamasi sama dengan mengesahkan negara yang pondasinya adalah pancasila
 
