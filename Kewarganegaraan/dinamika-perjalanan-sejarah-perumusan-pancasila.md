@@ -10,7 +10,7 @@ arti sejarah yaitu : kajian tentang peristiwa yang tumbuh dan berkembang pada ma
 ### Perkembangan sejarah  pada masa lampau masa kini dan masa lampau ###
 apa sih yang kita pelajari dalam topik pancasila yaitu perstiwa peristiwa pada masa lalu untuk membangun masa yang akan datang, bagaimana pncasila di masa lalu di masa sekarang dan masa yang akan datang
 
-#BPUPKI#
+# BPUPKI #
 ## Periode Pengusulan ##
 Moh Yamin, Ir. Soekarno, Mr. Soepomo
 Negara indonesia bukan perorangan
@@ -20,7 +20,7 @@ menurut Soekarno dapat diperas lagi menjadi 3 butir ( trisila ) :
 - Sosio-Demokrasi dan Ketuhanan yang Maha Esa
 yang kemudian di usulkan menjadi 5 yaitu Ekasila
 
-###Kesimpulan###
+### Kesimpulan ###
 Dasar negara yang diusulkan soekarno adalah gotong royong
 
 nama pancasila diusulkan soekarno dari bahasa sanskerta yang kemudian di bawa di rapat kedua keliatan ada perkembangan.
