@@ -7,7 +7,7 @@
 * Proses pembemtukan hukum memengaruhi pelaksanaan dan hasil hukum
 * Dipengaruhi oleh siapa yang membuat
 
-# 4 Komponen Hukum dalam Masyarakat #
+## 4 Komponen Hukum dalam Masyarakat ##
 1. Individu
 2. Kebutuhan
 3. Ancaman
